@@ -1,2 +1,1 @@
-# timberridge-home-preview
-Timber Ridge Enterprises homepage concept (preview only)
+Timber Ridge Enterprises homepage concept by iCreate Your Site (preview only)
